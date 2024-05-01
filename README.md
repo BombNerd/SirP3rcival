@@ -30,4 +30,20 @@ if someone boops me alot and does not talk,dni,DNI.
 people that arent on the dni list,unless u want ur name to be there,idm
 
 kind people
-people t
+people that seem cool to int w!
+
+**dont over ship the other ships and act like a weirdo!:)**
+
+
+
+
+
+
+***THATS ALL U CAN KNOW BOUT ME,I WILL ADD MORE WHEN I HAVE NEW THINGS ABOUT ME!!***
+
+
+
+
+
+
+                             ***♡ILY ALL,STAY SAFE!DONT FORGET TO EAT RATS***
