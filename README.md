@@ -39,8 +39,23 @@ people that seem cool to int w!
 
 
 
-***THATS ALL U CAN KNOW BOUT ME,I WILL ADD MORE WHEN I HAVE NEW THINGS ABOUT ME!!***
+***codes u should know about the pt community.***
 
+**DNI:do not interact**
+
+***DNC:do not copy,do not cover***
+
+***DNIUF:do not interact unless friends.***
+
+***DNIUCF:do not interact unless close friends.***
+
+***DNIUP:do not interact unless party***
+
+***INT:interact***
+
+***W2I:whisper to int***
+
+***W2C:whisper to contact***
 
 
 
