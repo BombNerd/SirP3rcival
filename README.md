@@ -5,6 +5,9 @@ if u feel uncomf,then dont int or js tell me***
 ***u can find me on pt,im always at sonic fandom,mha,fnaf and etc..***(*≧∀≦)人(≧∀≦*)♪
 
 {***SHIPS DNI!!***}(/_;)/~~
+-
+-
+-
 
 ***sonamy:no,js NO,feel free to go to the trash if u ship sonamy dudes.***
 
@@ -14,12 +17,19 @@ if u feel uncomf,then dont int or js tell me***
 -_-_-_-_-_-_-_-_-__-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-
 
 **[DNI]**(*｀Д´)ノ！！！
-basic dni.
+-
+-
+-
+
+-basic dni.
 people that acts very weird and makes alot of sex jokes.
 if someone boops me alot and does not talk,dni,DNI.
 ***if someone ships any of these dni ships,litterly dni bae.***
-
-**☆SHIPS INT!☆**(*^▽^)/★*☆♪
+-
+-**☆SHIPS INT!☆**(*^▽^)/★*☆♪
+-
+-
+-
 ***☆SONADOW♡***
 ***ROUAMY♡***
 ***☆KNUXROUGE***
@@ -34,12 +44,14 @@ people that seem cool to int w!
 
 **dont over ship the other ships and act like a weirdo!:)**( ・_ゝ・)
 
+-
+-
+-
 
 
 
 
-
-***codes u should know about the pt community.***(＃・∀・)
+-***codes u should know about the pt community.***(＃・∀・)
 
 **DNI:do not interact**
 
