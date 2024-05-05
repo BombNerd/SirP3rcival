@@ -93,6 +93,8 @@ people that seem cool to int w!
 
 ***♡NightBubbles***
 
+***☆paltokazz***
+
 ☆♡☆♡☆♡☆♡☆♤☆♤☆♤☆♤☆♡☆♡☆♡☆♡☆♡☆
 
 **IF U WANT TO BE W THE SILLIES,THEN INT W ME AND STAY W ME AND UR NAME WILL BE ADDED!(*^▽^)/★*☆♪**
