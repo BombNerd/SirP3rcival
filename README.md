@@ -73,27 +73,19 @@ people that seem cool to int w!
 -
 -***☆MY LOVELY POOKIES!♡***(*≧∀≦*)
 
-***♡IRLSONIC***
-
-***☆Ash0es***
-
-***☆lancevi***
-
-***♡riorson***
+***♡lancevi***
 
 ***☆Flamesii***
 
-***☆circusfreeak***
+***☆soulivv***
 
-***♡soulivv***
-
-***☆floatingflyx***
+***♡floatingflyx***
 
 ***☆X10o***
 
-***♡NightBubbles***
+***☆NightBubbles***
 
-***☆paltokazz***
+***♡paltokazz***
 
 ☆♡☆♡☆♡☆♡☆♤☆♤☆♤☆♤☆♡☆♡☆♡☆♡☆♡☆
 
