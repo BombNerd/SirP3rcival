@@ -14,6 +14,10 @@ if u feel uncomf,then dont int or js tell me***
 *shadzamy:who ever created this ship and made stupid fucking ass people ship it,go to hell.*
 
 **silblaze:js not into that.**
+
+**sonouge:js..disgusting.**
+-
+-
 -_-_-_-_-_-_-_-_-__-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-
 
 **[DNI]**(*｀Д´)ノ！！！
