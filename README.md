@@ -90,6 +90,10 @@ people that seem cool to int w!
 ***☆NightBubbles***
 
 ***♡paltokazz***
+
+***☆CELLCON***
+
+***☆xwardenx***
 -
 
 -
