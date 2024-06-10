@@ -1,4 +1,4 @@
-***hello!! my name is marla or marlen,u can pick 1 of the name of mine.You can call me sirperc or js percival!,i play pt 24/7,im 18..so i may act like a weirdo sometimes,i joke about 18+jokes and can be mean sometime
+***hello!! my name is marla or marlen,u can pick 1 of the name of mine.You can call me sirperc or js percival!,i play pt 24/7,im --..so i may act like a weirdo sometimes,i joke about 18+jokes and can be mean sometime
 if u feel uncomf,then dont int or js tell me***
 
 
